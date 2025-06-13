@@ -1,6 +1,6 @@
-# The dark history of Graham crackers - Stephanie Honchell Smith - YouTube
+# The dark history of Graham crackers - Stephanie Honchell Smith
 
-> X [Link](Pending)
+> X [Link](https://x.com/i/grok?conversation=1933409774541930672)
 
 ---
 
